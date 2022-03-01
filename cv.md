@@ -47,4 +47,4 @@ HTML Academy
 ***
 *A2*
 
-I improve my English every day on my own and with a teacher.
+I improve my English every day on my own and with a teacher)
