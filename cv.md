@@ -13,7 +13,7 @@
 
 ## About Me
 ***
-I have good interpersonal skills, am an excellent team worker and very willing to learn and develop new skills.
+I have good interpersonal skills, am an excellent team worker and very willing to learn and develop new skills)
 ## Skills
 ***
 * HTML
